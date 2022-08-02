@@ -5,7 +5,7 @@
 
 ## Rules
 - Split up into teams of 5 or 6 (Not your work team)
-- To solve a riddle you must photograph at least one team member with the animal (or their enclosure)
+- To solve a riddle you must photograph your entire team (minus photographer) with the animal or their enclosure
 - When you have your photograph, please send it with the riddle number to @Drew Valentine on Slack to receive points
 - The team with the most solutions wins
 - A tie will be broken by whichever team finished first
