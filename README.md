@@ -41,7 +41,7 @@
 1. They're horns, not tusks. One time in hollywood, an ace emerged from its rear.
 1. A bit Looney, but Tune in often and you might see me spin out of control.
 1. Long horse
-1. Ugly as a kid, pretty as an adult, I’m the chonky1. est, honky1. est of my kind.
+1. Ugly as a kid, pretty as an adult, I’m the chonky-est, honky-est of my kind.
 1. A bull or a cow if obtuse
    
    From Canada but I’m no goose
@@ -52,7 +52,7 @@
    
    Now clearly you’ve solved it, I’m _________"
 1. I don't breathe fire, but my name might make you think that I do. I'm the largest lizard in the world. What am I?
-1. Elephant, my closest relative some have said; but sailors of past, when glimpse caught real fast, claim I am a mermaid instead.
+1. Elephant is my closest relative some have said; but sailors of past, when glimpse caught real fast, claim I am a mermaid instead.
 1. I always need to stay on my toes. I guide Santa's sleigh with my shiny red nose.
 1. This animal is half of a liger, and likes frosted flakes.
 1. I am a cat that’s twice the size, does not catch mice, hunts at night, walks on snow white.
