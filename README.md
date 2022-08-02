@@ -71,3 +71,5 @@
    I’m the king of the jungle but I don’t have a crown"
 1. We jump over the lazy dogs in the Great White North.
 1. I’m the only mammal that can’t jump.
+1. I am calm and rusty, don’t get easily thirsty.  Lump on my back stores my food like a sack.
+
