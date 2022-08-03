@@ -50,7 +50,7 @@
    
    I’m hunted for game
    
-   Now clearly you’ve solved it, I’m _________"
+   Now clearly you’ve solved it, I’m _________
 1. I don't breathe fire, but my name might make you think that I do. I'm the largest lizard in the world. What am I?
 1. Elephant is my closest relative some have said; but sailors of past, when glimpse caught real fast, claim I am a mermaid instead.
 1. I always need to stay on my toes. I guide Santa's sleigh with my shiny red nose.
