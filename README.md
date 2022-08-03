@@ -72,4 +72,4 @@
 1. We jump over the lazy dogs in the Great White North.
 1. I’m the only mammal that can’t jump.
 1. I am calm and rusty, don’t get easily thirsty.  Lump on my back stores my food like a sack.
-
+1. Follow the alphabets, and you’ll find me back to front.  Scan the barcode, now don’t be so blunt.
